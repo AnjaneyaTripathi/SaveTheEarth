@@ -9,3 +9,7 @@ We are also home to the heart-shaped herb, our source of strength, and a closely
 My name is T'Challa and as you know, I'm the King of Wakanda. I have joined the Avengers a few weeks ago and recently, revealed our land to the rest of the world. They think we are a nation of farmers. LOL. Little do they know that we are the technologically most advanced nation in the world.
 
 Oh, by the way, my favourite shoes are Sneakers. XD
+
+Height: 182.8 cm
+Weight: 83.94 kg
+Age: not available
