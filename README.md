@@ -11,3 +11,5 @@ My name is T'Challa and as you know, I'm the King of Wakanda. I have joined the 
 Height: 182.8 cm
 Weight: 83.94 kg
 Age: not available
+
+# Rest in Power KING!
